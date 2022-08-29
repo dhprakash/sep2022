@@ -49,3 +49,15 @@ http://kamleshyadav.com/html/transport/transport/index.html
 https://transport.themesun.com/---
 https://www.cymolthemes.com/html/shiftler/header-style-04.html
 https://themebeyond.com/html/startesk/startesk/index.html---
+https://templates.envytheme.com/prevoz/default/index-2.html
+http://world5.commonsupport.com/html/transpo/
+http://wahabali.com/work/copious/home_1.html
+https://www.cymolthemes.com/html/movixo/index.html
+https://preview.themeforest.net/item/wshipping-html5-responsive-the-shipping-cargo-logistics-multipurpose-template/full_screen_preview/20715901?_ga=2.18549885.554753735.1661769682-754562962.1655802842
+https://themepure.net/template/volport-prev/volport/index.html
+https://bytesed.com/tf/additrans/
+https://tranmix.netlify.app/index-demo-2.html
+https://templates.envytheme.com/matro/default/index.html
+https://templates.hibootstrap.com/ferry/default/index.html
+https://eyecix.com/html/moverspackers/
+https://templates.hibootstrap.com/fixa/default/index.html
