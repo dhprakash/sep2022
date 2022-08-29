@@ -32,3 +32,20 @@ https://kodesolution.com/html/2020/econsul-html/demo/index-mp-layout1.html
 
 Logistic
 https://upfronthtml.websitelayout.net/
+https://html.themexriver.com/fastrans/index-2.html
+https://html.themexriver.com/fastrans/index-4.html
+http://st.ourhtmldemo.com/template/cargohub/
+https://mannatstudio.com/html/logzee/bs5/index.html
+https://www.wowtheme7.com/tf/transpro/ -----Backg
+http://quickdevs.com/demo/cargoy/homepage-one.html----
+https://themeforest.kreativdev.com/transpix/transpix/index-3.html
+https://demo.zytheme.com/equita/
+http://designarc.biz/demos/logic-cargo/---
+http://themesflat.com/html/canava/
+https://thewebmax.com/logitrago/index-2.html---
+https://thewebmax.com/logitrago/index.html
+http://webextheme.com/html/logistek-html/version4/---
+http://kamleshyadav.com/html/transport/transport/index.html
+https://transport.themesun.com/---
+https://www.cymolthemes.com/html/shiftler/header-style-04.html
+https://themebeyond.com/html/startesk/startesk/index.html---
